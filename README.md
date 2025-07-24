@@ -1,1 +1,1 @@
-content://com.whatsapp.provider.media/item/61f71856-aa21-4e04-818f-e34c4a5d6f25
+MaqPlay é especialista em conserto, manutenção e higienização de máquinas de lavar em Cosmópolis e região. Atendemos com rapidez, qualidade e preço justo. Solicite seu orçamento pelo WhatsApp!
